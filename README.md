@@ -1,16 +1,31 @@
-## Hi there 👋
+↓↓↓最/新/观/看/入/口↓↓↓
 
-<!--
-**gssra/gssra** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
-Here are some ideas to get you started:
+成人礼。
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+锦晏的十八岁生日在兰镇过，父母为她精心筹划了一场成人礼，除了村里人，只邀请了一些关系很好来往密切的亲戚朋友参加。
+
+在这一天，已经接手家族事务平时忙得脚不沾地的谢镜和军校快毕业的周鹤也来到了兰镇。
+
+明明时光过去了多年，每个人都长大了，可他们一见面还像是小时候一样。
+
+表面兄友弟恭，客客气气，一个比一个绅士。
+
+私底下，却依旧幼稚的争论着一个十几年都没变过也没争出答案的问题。
+
+只是这一次稍微有些不同。
+
+在锦晏做造型试礼服的时候，周鹤跟谢镜两人进行了一场爬山比赛。
+
+周鹤长得人高马大，比谢镜还要高出一些，而且他每天都在进行高强度训练，体力比常人都要好。
+
+跑之前，他以为自己赢定了，于是挑衅似的说：“其他事不好说，但这场比赛，我赢定了！”
+
+谢镜面无表情，偶尔露出些许神色，也都是对周鹤的不满和嫌弃，像是在说都十几年过去了，这人怎么还活着一样。
+
+简直阴魂不散。
+
+周鹤一点儿也不在意谢镜的表情。
+http://2024522.sbs
+两个人明争暗斗了多年，谢镜那眼神
